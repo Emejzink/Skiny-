@@ -35,3 +35,6 @@
 
 # [Azerino followpoints](https://cdn.discordapp.com/attachments/1055928283121852556/1175093026968846376/Azerino_-_followpoints.osk?ex=6569f9a9&is=655784a9&hm=0cf6013d504fb32309703a130bc5a57361fe4c045a2490808fb1441e28394aca&)
 ![](https://cdn.discordapp.com/attachments/1055928283121852556/1175093679006957629/screenshot218.jpg?ex=6569fa45&is=65578545&hm=50f59a1e1daed22d374b841131ffc663438993ed5539c5bffdc1ea9b4bd0c3ac&)
+
+# [404 SkinNotFound](https://cdn.discordapp.com/attachments/1055928283121852556/1175094277911629965/404_SkinNotFound_v2.osk?ex=6569fad4&is=655785d4&hm=c9e1500372966f9cb822f61a41b55aa139d9a24d54e42664c5b5aa18e13f5d32&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175094404546043995/screenshot227.jpg?ex=6569faf2&is=655785f2&hm=867cc36a69d7088df8c06b6f3b29e721594ecc644dc31f8663b9e483e26a9d8e&)
