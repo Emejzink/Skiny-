@@ -26,3 +26,12 @@
 # [Rafis 18x23](https://cdn.discordapp.com/attachments/1055928283121852556/1175090779300040845/Rafis_18x23_RK.osk?ex=6569f791&is=65578291&hm=cda18d90034194f3467fe3d45bae41f66050c95e71a33f147e4bebb42bcff49b&) 
 # [Rafis 18x23 - nowe hitsoundy](https://cdn.discordapp.com/attachments/1055928283121852556/1175090770395529247/Rafis_18x23_-_nowe_hity.osk?ex=6569f78f&is=6557828f&hm=fe8712786d830ad9df2b693faf6e1c70132b13972f6d29a30baf670c0d5c8092&)
 ![](https://cdn.discordapp.com/attachments/1055928283121852556/1175091712721432677/screenshot224.jpg?ex=6569f870&is=65578370&hm=0b633b129c21697d71e1b3de27fa048951a9718eb58c63a24c7f8e863999fbbc&)
+
+# [Azerino classic](https://cdn.discordapp.com/attachments/1055928283121852556/1175093027333746789/azerino_classic.osk?ex=6569f9a9&is=655784a9&hm=34069fd21dcaeed8d060db0beeb50fea6d2a6fd3dfa25d6b6bb3537d9ef909b3&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175093688389619792/screenshot216.jpg?ex=6569fa47&is=65578547&hm=5ccb0c0cb1e0241038c0e834cff733011c4e4a70923558778126cfe0a0cd3418&)
+
+# [Azerino classic - inne hity](https://cdn.discordapp.com/attachments/1055928283121852556/1175093027711238164/azerino_classic_inne_hity.osk?ex=6569f9a9&is=655784a9&hm=325ac2ba0cea60c490d51c32937f7c371878a853b46491d81c32103bfff78586&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175093688389619792/screenshot216.jpg?ex=6569fa47&is=65578547&hm=5ccb0c0cb1e0241038c0e834cff733011c4e4a70923558778126cfe0a0cd3418&)
+
+# [Azerino followpoints](https://cdn.discordapp.com/attachments/1055928283121852556/1175093026968846376/Azerino_-_followpoints.osk?ex=6569f9a9&is=655784a9&hm=0cf6013d504fb32309703a130bc5a57361fe4c045a2490808fb1441e28394aca&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175093679006957629/screenshot218.jpg?ex=6569fa45&is=65578545&hm=50f59a1e1daed22d374b841131ffc663438993ed5539c5bffdc1ea9b4bd0c3ac&)
