@@ -1,4 +1,4 @@
-![screenshot221](https://github.com/Emejzink/Skiny-/assets/150173995/289cd7b1-41f2-41a0-9fbf-074ae19b4b5d)# Amazingowe skiny osu! z bonusem +10% do speeda
+# Amazingowe skiny osu! z bonusem +10% do speeda
 
 # https://twitch.tv/amazingosu
 
