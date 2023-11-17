@@ -19,3 +19,6 @@
 
 # [Rafis +HDDT (amazing edit)](https://drive.google.com/file/d/1RP9mHW3WK-bL4oFp2gaG1OW_kUbDh04w/view?usp=share_link)
 ![](https://i.imgur.com/J2aF9sp.jpg)
+
+# [Bees OG](https://cdn.discordapp.com/attachments/1055928283121852556/1175084254464585738/bees_OG.osk?ex=6569f17e&is=65577c7e&hm=acac0babbc5be2c9e90c9060af3f6f5261d184a349d6c590235584fa1c8c6417&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175084070418522193/screenshot223.jpg?ex=6569f152&is=65577c52&hm=4b67258a104a609fbaf11eefbe591e761416ce89871826e100c380289d4b5b0b&)
