@@ -1,4 +1,4 @@
-# Amazingowe skiny osu! z bonusem +10% do speeda
+![screenshot221](https://github.com/Emejzink/Skiny-/assets/150173995/289cd7b1-41f2-41a0-9fbf-074ae19b4b5d)# Amazingowe skiny osu! z bonusem +10% do speeda
 
 # https://twitch.tv/amazingosu
 
@@ -11,8 +11,8 @@
 # [Aesthetic cyan cursor](https://cdn.discordapp.com/attachments/1055928283121852556/1175080610532954233/-Aesthetic_1.3.11RedCursor.osk?ex=6569ee19&is=65577919&hm=77faa78f2e819baf3473c85890c14499a0600a82221992da7e6a09d30cd8f102&)
 ![](https://cdn.discordapp.com/attachments/1055928283121852556/1175081710531129405/screenshot212.jpg?ex=6569ef1f&is=65577a1f&hm=ab330b7612ca591c77b99601cf6255bd4539f3ee57377b78dc349380c9e7c2b6&)
 
-# [azer8dusk](http://www.mediafire.com/file/3utdwy2q0vx8h7h/azer8dusk.osk/file#)
-![](https://i.imgur.com/p6nxIJB.jpg)
+# [Karthy x Amazing](https://cdn.discordapp.com/attachments/1055928283121852556/1175082754090729575/Karthy_x_Amazing.osk?ex=6569f018&is=65577b18&hm=2dc691706d56e58bf4d74bd6b43853b1b41ac02acf980950c7ab6b989fae4c8b&)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175082163801178132/screenshot221.jpg?ex=6569ef8b&is=65577a8b&hm=811c052086e7078d684bcc938e120921ade5c7c3609c6005fc0fc7e25c8c76dc&)
 
 # [Rafis +HDDT (amazing edit)](https://drive.google.com/file/d/1RP9mHW3WK-bL4oFp2gaG1OW_kUbDh04w/view?usp=share_link)
 ![](https://i.imgur.com/J2aF9sp.jpg)
