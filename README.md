@@ -15,7 +15,7 @@
 ![](https://cdn.discordapp.com/attachments/1055928283121852556/1175082163801178132/screenshot221.jpg?ex=6569ef8b&is=65577a8b&hm=811c052086e7078d684bcc938e120921ade5c7c3609c6005fc0fc7e25c8c76dc&)
 
 # [- RK YEZMAN](https://mega.nz/folder/3swGHYaL#rBDf18fsdNT5C34g7JSslA/file/fwQUkDhL)
-![](https://i.imgur.com/p6nxIJB.jpg)
+![](https://cdn.discordapp.com/attachments/1055928283121852556/1175083851131920395/screenshot222.jpg?ex=6569f11e&is=65577c1e&hm=2297ee6d6298f87103a91f21983d8b237d0fa2e22c53bff62e497a7723c3eb4f&)
 
 # [Rafis +HDDT (amazing edit)](https://drive.google.com/file/d/1RP9mHW3WK-bL4oFp2gaG1OW_kUbDh04w/view?usp=share_link)
 ![](https://i.imgur.com/J2aF9sp.jpg)
