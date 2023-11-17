@@ -1,4 +1,4 @@
-!# Amazingowe skiny osu! z bonusem +10% do speeda
+# Amazingowe skiny osu! z bonusem +10% do speeda
 
 # https://twitch.tv/amazingosu
 
