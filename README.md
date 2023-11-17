@@ -1,4 +1,4 @@
-# Amazingowe skiny osu! z bonusem +10% do speeda
+!# Amazingowe skiny osu! z bonusem +10% do speeda
 
 # https://twitch.tv/amazingosu
 
@@ -13,6 +13,9 @@
 
 # [Karthy x Amazing](https://cdn.discordapp.com/attachments/1055928283121852556/1175082754090729575/Karthy_x_Amazing.osk?ex=6569f018&is=65577b18&hm=2dc691706d56e58bf4d74bd6b43853b1b41ac02acf980950c7ab6b989fae4c8b&)
 ![](https://cdn.discordapp.com/attachments/1055928283121852556/1175082163801178132/screenshot221.jpg?ex=6569ef8b&is=65577a8b&hm=811c052086e7078d684bcc938e120921ade5c7c3609c6005fc0fc7e25c8c76dc&)
+
+# [- RK YEZMAN](https://mega.nz/folder/3swGHYaL#rBDf18fsdNT5C34g7JSslA/file/fwQUkDhL)
+![](https://i.imgur.com/p6nxIJB.jpg)
 
 # [Rafis +HDDT (amazing edit)](https://drive.google.com/file/d/1RP9mHW3WK-bL4oFp2gaG1OW_kUbDh04w/view?usp=share_link)
 ![](https://i.imgur.com/J2aF9sp.jpg)
